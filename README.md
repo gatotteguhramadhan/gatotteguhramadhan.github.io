@@ -1,1 +1,1 @@
-# gatotteguhramadhan.github.io My Biodata ^_<
+# gatotteguhramadhan.github.io My Biodata
